@@ -8,7 +8,7 @@
 ### 一些相关链接
 1.原文截图
 <br/>[【更新包丽朋友文章】](https://www.douban.com/group/topic/160605417/)
-<br/>[bing.com缓存](http://cncc.bingj.com/cache.aspx?q=%e5%8d%97%e6%96%b9%e5%91%a8%e6%9c%ab+%e5%8c%85%e4%b8%bd+%e6%96%87%e7%ab%a0%e6%88%aa%e5%9b%be&d=853255008213&mkt=en-US&setlang=en-US&w=-f5tUyIqcu0I-TML9bdRzlYWXuryHSu0)
+<br/>[【南方周末文章】bing.com缓存](http://cncc.bingj.com/cache.aspx?q=%e5%8d%97%e6%96%b9%e5%91%a8%e6%9c%ab+%e5%8c%85%e4%b8%bd+%e6%96%87%e7%ab%a0%e6%88%aa%e5%9b%be&d=853255008213&mkt=en-US&setlang=en-US&w=-f5tUyIqcu0I-TML9bdRzlYWXuryHSu0)
 
 2.北大法学院学长就牟一事的微信推送
 <br/>[逼死包丽的，除了牟林翰究竟还有谁？](https://mp.weixin.qq.com/s/uNJR8-MPJG3a2_cwURwk6g)
